@@ -1,8 +1,13 @@
-### 💡 Name: ideas
+`chatGpt was used for the 
+structure, grammer, rephrase & peraphrasing`
 
-1. ***Digital Fortress***
+*4rd iteration (in progress)*
 
-# *4rd iteration (in progress)*
+# 💡 Name: ideas
+
+1. `Digital Fortress`
+2. 
+
 
 # 🔄️ 3rd iteration
 
@@ -66,7 +71,7 @@ In a dramatic climax, Jack and Sophie finally complete their AI and the organiza
 
 In the end, Jack and Sophie reconcile and move to Netherlands to start a new life together and raise a beautiful baby girl. The story shifts to focus on the girl growing up and their journey raising her together. "The AI Code" is a thrilling and action-packed story that explores the cutting-edge technology of artificial intelligence and the dangers of its misuse. The story is full of fast-paced plot and rich characters, keeping readers on the edge of their seats from beginning to end. The story also highlights the struggles of a brilliant but lonely individual, Jack, who is on a mission to create something great, but also highlights the importance of relationships, trust, and the importance of using technology for the betterment of mankind.
 
-# ✍️ Main Idea
+# ✍️ initial idea for the story
 
 a lonely introvert guy trying to live onhis own after completing university on a city. he is looking for a job. also a partner. in his journey in his life. he encounters a lot of girls. a lot of the time he couldn't able to aproach the girls. some became friends. he tried to go for a relationship but faild. at last he meets a really beautiful and inteligent woman. "they meet in a really interesting way". there was instent chamistry between them. but both of them are devoted to their work life and thought about each other all the time. they talked about each other with their friends. on a holiday they decied to go for a tour to see the mountains and a long drive. in the journey they kheew about each other more. and on a hotel they become physical for the first time. 1st 3 months was magical. but after that they faced many difficulties. they devloped some trust issues. and they started to fight with each other. and some angry sex. finally after a 6 months of their relationship they broke up. the boy was devested. this was his first love. and he couldn't focus on his work. couldn't stop thinking about her and tried everything to get her back. but she blocked him from her life.
 it took about a month or so get over her and try to focus on his work.he quit his job. and invested in crypto, and other popular startups. he did some freelancing and faild doing a lot of startups. some had small success. but he wasn't satisfied with that. he starts working on a ai startup. he was creating this operating system truly powerd by ai. he starts working on this operating system. in a year or so he devlops the based of his operating system. and he stared making videos showing his operating system in different social media. he quickly gathered manny renounded peroples attention. some companies tried to buy his product but he refused. he gathered some avarage devlopers from his friends and stared working on this operating system. in his journey creating this operating system he hired a personal assistent. at first both were serisous with thir work. both started to get attacted to each other but they didn't say anything because his startup was gaining traction. he and his assistent worked really hard to create this operating system. after working on this startup for more then 3 years he lost interest and sold his startup to a big companie. he invests his money carefully. some fail and got prommising results. finally he went out with his assistent but she told him in the date that she has feeling for this other guy but she want to be friends with him. one day the other guy breaks up with her and she comes back to this guy and haves sex with him. the both decieds to go on a world tour. they go to different country and shows off their interest. our main character loves to draw and loves art. also loves science and love meditating, doing yoga. they both falls in love with each other. they both explore their passion. they decides to move to netherlands. to start a new life there. after a year they get married. and have a beautiful baby girl.
