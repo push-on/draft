@@ -1,5 +1,3 @@
-# 📖 my story brief
-
 ### 💡 Name: ideas
 
 1. ***Digital Fortress***
