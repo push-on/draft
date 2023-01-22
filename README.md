@@ -1,5 +1,5 @@
 `chatGpt was used for the 
-structure, grammer, rephrase & peraphrasing`
+structure, grammar, rephrase & paraphrasing`
 
 *4rd iteration (in progress)*
 
