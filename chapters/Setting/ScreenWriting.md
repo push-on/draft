@@ -39,3 +39,9 @@ Jack: "And neither will we. Will you come to Netherlands with me and start a new
 Sophie: "Yes, I will."
 
 The story is a blend of action, romance, and technology. It delves into the ethical and moral implications of creating AI as well as the potential consequences of its misuse. The story also delves into the technical aspects of the AI, how it works, and how the characters are trying to improve it.
+
+
+starts with 3 characters.
+jack and his 2 classmates.
+one is a avarage programmer
+another is really very athlatic.
